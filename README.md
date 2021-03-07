@@ -43,6 +43,6 @@ I am working on a certification guide with two other authors, and I will provide
 
 I hope you enjoy taking this course as much as I did creating it.  I'd love to hear feedback and suggestions for revisions.
 
-Thanks and happy automating!
+Thanks and happy automating! I love this Ned. thank you Kola
 
 Ned
